@@ -1,1 +1,1 @@
-Tento repozitáø jsem si založila pro plnìní úkolù v pøedmìtu NAMI.
+Tento repozitáø jsem si založila pro plnìní úkolù v pøedmìtu NAMI..
