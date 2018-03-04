@@ -1,1 +1,1 @@
-# nami
+Tento repozitáø jsem si založila pro plnìní úkolù v pøedmìtu NAMI.
